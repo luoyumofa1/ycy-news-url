@@ -11,3 +11,8 @@ www.yaociyuan.xyz
 目前最新网址
 
 www.140140140.xyz
+
+
+漫画站最新网址
+
+www.966000.xyz
