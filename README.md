@@ -1,7 +1,7 @@
 # ycy-news-url
-妖次元
+妖次元最新网址发布页
 
-我们的永久域名
+妖次元的永久域名
 
 www.yaociyuan.xyz
 
