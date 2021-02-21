@@ -19,4 +19,10 @@ https://www.yaociyuan.men/     网址寓意（妖次元.男人）
 
 漫画站最新网址
 
-www.966000.xyz
+www.966000.xyz  2021.2.19 全网挂掉
+
+新域名
+
+https://www.966966.buzz/
+
+
