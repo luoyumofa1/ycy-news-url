@@ -5,35 +5,46 @@
 
 妖次元的永久域名
 
-www.yaociyuan.xyz
+www.yaociyuan.net
 
 网址已被污染
 海外可访问
 
-目前最新网址
+妖次元主站目前最新网址
+
+（曾用域名，无法使用）
 
 www.140140140.xyz  （2021.2.5 移动网被拦截）
 
-更换新网址
+更换新网址（可使用）
 
 https://www.yaociyuan.men/     网址寓意（妖次元.男人）
 
+
+--------------------------------------
+
 妖次元在线弹幕里番网
+
+新网址（可使用）
 
 https://www.000038.xyz/
 
+-----------------------------
 
 漫画站最新网址
 
+（曾用域名，无法使用）
+
 www.966000.xyz  2021.2.19 全网挂掉
 
-新域名
+新网址（可使用）
 
 https://www.966966.buzz/
 
 ------------------------------------------
 
 服务器维护记录
+
 2021.2.15 服务器宕机，16日修复后正常
 
 
@@ -50,7 +61,7 @@ Here is the release page of the latest website
 
 Own a permanent domain name
 
-www.yaociyuan.xyz
+www.yaociyuan.net
 
 In addition to China, you can directly visit the above domain name to get the latest website
 
@@ -62,7 +73,7 @@ In addition to China, you can directly visit the above domain name to get the la
 
 永続ドメイン名を所有する
 
-www.yaociyuan.xyz
+www.yaociyuan.net
 
 中国に加えて、あなたは直接、最新のウェブサイトを得るために上記のドメイン名を訪問することができます
 
@@ -74,7 +85,7 @@ www.yaociyuan.xyz
 
 영구 도 메 인 네 임 보유
 
-www.yaociyuan.xyz
+www.yaociyuan.net
 
 중국 을 제외 하고 귀 하 는 상기 도 메 인 이름 을 직접 방문 하여 최신 사 이 트 를 얻 을 수 있 습 니 다.
 
@@ -86,7 +97,7 @@ www.yaociyuan.xyz
 
 Уласцівасці сталога імя дамену
 
-www.yaociyuan.xyz
+www.yaociyuan.net
 
 
 Акрамя Кітай, вы можаце прама наведаць вышэй назву дамену, каб атрымаць апошнюю веб-сайту
