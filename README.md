@@ -1,4 +1,4 @@
-# ycy-news-url
+# 妖次元最新网址（ycy-news-url）
 
 
 妖次元最新网址发布页
