@@ -41,6 +41,18 @@ https://www.ycylf.xyz/
 
 https://www.966966.buzz/
 
+-----------------------------
+
+
+妖次元里番下载功能上线
+
+
+获取解压密码（可使用）
+
+https://www.yaociyuan.buzz/jieya/
+
+https://dl.yaociyuan.buzz/
+
 ------------------------------------------
 
 # 更换网址的触发条件
