@@ -158,6 +158,28 @@ yaociyuan123@Gmail.com
 www.yaociyuan.net/btc/
 
 
+------------------------------------------------------------
+
+# 感谢赞助，金主名单
+Thank you very much for your donation
+
+金主昵称（排名为捐赠时间先后）
+
+内田真礼の旦那
+sex god
+wahson
+牛逼的我
+원지영
+悟空的棒棒
+Антон
+别说话跪下口
+小野道风
+オオシロマイ
+Роман
+주몽룡
+Eileen R Peterson
+Louis
+Esther
 
 ------------------------------------------------------------
 
