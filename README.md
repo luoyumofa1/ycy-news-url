@@ -157,6 +157,8 @@ yaociyuan123@Gmail.com
 
 www.yaociyuan.net/btc/
 
+
+
 ------------------------------------------------------------
 
 English
@@ -166,8 +168,6 @@ Here is the release page of the latest website
 Own a permanent domain name
 
 www.yaociyuan.net
-
-In addition to China, you can directly visit the above domain name to get the latest website
 
 -----------------------------------------------------------
 
@@ -179,8 +179,6 @@ In addition to China, you can directly visit the above domain name to get the la
 
 www.yaociyuan.net
 
-中国に加えて、あなたは直接、最新のウェブサイトを得るために上記のドメイン名を訪問することができます
-
 -----------------------------------------------------------
 
 한국어
@@ -190,8 +188,6 @@ www.yaociyuan.net
 영구 도 메 인 네 임 보유
 
 www.yaociyuan.net
-
-중국 을 제외 하고 귀 하 는 상기 도 메 인 이름 을 직접 방문 하여 최신 사 이 트 를 얻 을 수 있 습 니 다.
 
 -----------------------------------------------------------
 
@@ -203,5 +199,3 @@ www.yaociyuan.net
 
 www.yaociyuan.net
 
-
-Акрамя Кітай, вы можаце прама наведаць вышэй назву дамену, каб атрымаць апошнюю веб-сайту
