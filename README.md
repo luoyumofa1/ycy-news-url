@@ -90,6 +90,15 @@ https://www.yaociyuan.buzz/jieya/
 https://dl.yaociyuan.buzz/
 
 ------------------------------------------
+# 官方聊天群组
+
+官方Telegram群
+
+https://t.me/+J-Yx8nD3Xf9mZjgx
+
+
+------------------------------------------
+
 
 # 更换网址的触发条件
 
