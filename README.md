@@ -75,7 +75,7 @@ https://www.ycylf.xyz/
 
 新网址（可使用）
 
-https://www.966966.buzz/
+https://mh.yaociyuan.buzz/
 
 -----------------------------
 
@@ -138,6 +138,37 @@ yaociyuan123@Gmail.com
 
 我们都会查看，对问题进行答复
 
+------------------------------------------
+
+# 官方新网址发布页
+
+聚合发布页
+
+https://000051.xyz/  
+
+单体发布页
+
+http://yaociyuan.c1.biz/
+
+http://yaociyuan.unaux.com/
+
+http://yaociyuan.onlinewebshop.net/
+
+https://yaociyuan.000webhostapp.com/
+
+http://yaociyuan.ezyro.com/?i=1
+
+https://www.yaociyuan.tk/
+
+https://www.yaociyuan.ml/
+
+https://www.yaociyuan.cf/
+
+https://www.yaociyuan.cf/
+
+https://www.yaociyuan.gq/
+
+https://www.yaociyuan.ga/
 
 
 ------------------------------------------
