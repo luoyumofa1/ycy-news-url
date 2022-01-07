@@ -98,7 +98,25 @@ https://t.me/+J-Yx8nD3Xf9mZjgx
 
 
 ------------------------------------------
+# 官方支持的浏览器
 
+
+我们只支持谷歌浏览器
+
+请避免使用中国浏览器造成无法访问
+
+谷歌浏览器下载地址
+
+https://www.google.cn/intl/zh-CN/chrome/
+
+
+腾讯
+https://pc.qq.com/detail/1/detail_2661.html
+
+太平洋
+https://dl.pconline.com.cn/download/51614.html
+
+------------------------------------------
 
 # 更换网址的触发条件
 
