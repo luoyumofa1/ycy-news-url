@@ -182,8 +182,6 @@ https://www.yaociyuan.ml/
 
 https://www.yaociyuan.cf/
 
-https://www.yaociyuan.cf/
-
 https://www.yaociyuan.gq/
 
 https://www.yaociyuan.ga/
