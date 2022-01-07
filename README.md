@@ -249,31 +249,10 @@ www.yaociyuan.net
 
 -----------------------------------------------------------
 
-日本語
+THE WEBSITE COLLECTS A LARGE AMOUNT OF ADULT CONTENT AND GUARANTEES PERMANENT FREE!
 
-最新のウェブサイトのリリースページはこちら
+ALL THE CONTENT OF THIS WEBSITE IS ONLY OPEN TO ADULTS, MINORS OR VISITORS NOT ALLOWED BY THE COUNTRY PLEASE LEAVE.
 
-永続ドメイン名を所有する
+ALL THE CONTENTS OF THE WEBSITE COME FROM THE INTERNET PUBLIC INFORMATION COLLECTION, THIS WEBSITE DOES NOT DO ANY RESOURCE STORAGE AND DOWNLOAD SERVICES, IF YOU HAVE COPYRIGHT PROBLEMS, PLEASE CONTACT EMAIL TO DELETE.
 
-www.yaociyuan.net
-
------------------------------------------------------------
-
-한국어
-
-이것 은 최신 사이트 의 게시 물 입 니 다.
-
-영구 도 메 인 네 임 보유
-
-www.yaociyuan.net
-
------------------------------------------------------------
-
-Русія
-
-Вось старонка выпуску апошняга сайта
-
-Уласцівасці сталога імя дамену
-
-www.yaociyuan.net
 
