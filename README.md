@@ -176,16 +176,6 @@ https://yaociyuan.000webhostapp.com/
 
 http://yaociyuan.ezyro.com/?i=1
 
-https://www.yaociyuan.tk/
-
-https://www.yaociyuan.ml/
-
-https://www.yaociyuan.cf/
-
-https://www.yaociyuan.gq/
-
-https://www.yaociyuan.ga/
-
 
 ------------------------------------------
 
