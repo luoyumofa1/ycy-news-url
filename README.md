@@ -58,7 +58,7 @@ www.yaociyuan.net
 
 所有时间为：美国西部时间
 
-2022年3月28日
+2022年7月8日
 --------------------------------------
 
 # 目前可使用的最新网址
@@ -68,7 +68,7 @@ www.yaociyuan.net
 
 新网址（可使用）
 
-https://www.yaociyuan.co/     
+https://www.yaociyuan.fun/     
 
 
 --------------------------------------
@@ -86,7 +86,7 @@ https://www.ycylf.men/
 
 新网址（可使用）
 
-https://mh.yaociyuan.co/
+https://mh.yaociyuan.fun/
 
 -----------------------------
 
@@ -96,9 +96,9 @@ https://mh.yaociyuan.co/
 
 获取解压密码（可使用）
 
-https://www.yaociyuan.co/jieya/
+https://www.yaociyuan.fun/jieya/
 
-https://dl.yaociyuan.co/
+https://dl.yaociyuan.fun/
 
 ------------------------------------------
 # 官方防骗声明
