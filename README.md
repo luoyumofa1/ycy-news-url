@@ -53,9 +53,9 @@ www.yaociyuan.net
 更多待定
 
 ------------------------------------------
-#官方讨论区
+官方讨论区
 
-以开启讨论区,欢迎发布问题,大家一起交流
+已经开启讨论区,欢迎发布问题,大家一起交流
 
 https://github.com/yaociyuan/ycy-news-url/discussions
 
