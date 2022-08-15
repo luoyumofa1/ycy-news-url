@@ -300,15 +300,6 @@ INDEX!!
 
 ------------------------------------------------------------
 
-English
-
-Here is the release page of the latest website
-
-Own a permanent domain name
-
-www.yaociyuan.net
-
------------------------------------------------------------
 
 THE WEBSITE COLLECTS A LARGE AMOUNT OF ADULT CONTENT AND GUARANTEES PERMANENT FREE!
 
