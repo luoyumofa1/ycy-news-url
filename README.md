@@ -66,7 +66,7 @@ https://github.com/yaociyuan/ycy-news-url/discussions
 
 所有时间为：美国西部时间
 
-2022年7月11日
+2022年10月16日
 --------------------------------------
 
 # 目前可使用的最新网址
@@ -85,7 +85,7 @@ https://www.yaociyuan.fun/
 
 新网址（可使用）
 
-https://www.ycylf.net/
+https://www.ycylf.cc/
 
 -----------------------------
 
