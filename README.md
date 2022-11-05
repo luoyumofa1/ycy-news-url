@@ -106,8 +106,39 @@ https://mh.yaociyuan.fun/
 
 https://www.yaociyuan.fun/jieya/
 
+------------------------------------------
+
+# 官方新网址发布页
+
+
+新聚合页地址
+
+https://510051.xyz/ 
+
+
+单体发布页
+
+http://yaociyuan.c1.biz/
+
+http://yaociyuan.unaux.com/
+
+http://yaociyuan.onlinewebshop.net/
+
+http://yaociyuan.ezyro.com/?i=1
 
 ------------------------------------------
+
+# 暂时保留的域名
+
+https://www.ycylf.net/
+
+https://www.ycylf.men/
+
+https://www.yaociyuan.men/
+
+
+------------------------------------------
+
 # 官方推荐使用的DNS
 
 谷歌的公共DNS服务器
@@ -222,25 +253,6 @@ yaociyuan123@Gmail.com
 
 我们都会查看，对问题进行答复
 
-------------------------------------------
-
-# 官方新网址发布页
-
-
-新聚合页地址
-
-https://510051.xyz/ 
-
-
-单体发布页
-
-http://yaociyuan.c1.biz/
-
-http://yaociyuan.unaux.com/
-
-http://yaociyuan.onlinewebshop.net/
-
-http://yaociyuan.ezyro.com/?i=1
 
 
 
