@@ -128,16 +128,7 @@ http://yaociyuan.ezyro.com/?i=1
 
 ------------------------------------------
 
-# 暂时保留的域名
 
-https://www.ycylf.net/
-
-https://www.ycylf.men/
-
-https://www.yaociyuan.men/
-
-
-------------------------------------------
 
 # 官方资源统一解压密码
 
